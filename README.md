@@ -25,23 +25,7 @@ __中文版__
 
 # TV
 
-__DVD版__
-
-（画质感人，自带中文字幕）
-
-链接：https://pan.baidu.com/s/1nu6ayIKSI3p2w7YYKPoluQ 提取码：jqhn 
-
-__蓝光版__
-
-（Cornflower Studio资源，84、124、154百度云可能报错，与后者配合使用）
-
-链接：https://pan.baidu.com/s/1cs17V-3gL5NmIVZVAHzVxg 提取码：xlbm 
-
-__蓝光版__
-
-（在Cornflower Studio资源的基础上整合了字幕文件，84、124、154百度云可能报错，与前者配合使用）
-
-链接：https://pan.baidu.com/s/1U1Jw_1Ob-D_l8b_k4UlF1g 提取码：518s 
+资源都被百度云毙了，可以到福星小子吧资源贴寻找
 
 # OVA
 
