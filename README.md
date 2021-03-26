@@ -1,4 +1,7 @@
-漫画
+*福星小子资源整理
+
+**漫画
+
 日文 图片
 链接：https://pan.baidu.com/s/11PgvFCmBnSUzoRvRhL2zOg 
 提取码：85kz 
