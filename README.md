@@ -31,13 +31,13 @@ __中文版__
 
 __DVD版__
 
-（画质感人，自带中文字幕）
+（480P，画质感人，自带中文字幕）
 
 链接：https://pan.baidu.com/s/1RHoMF1qNB05fCIV8XGxBvw 提取码：99h2 
 
 __蓝光版__
 
-（Cornflower Studio资源，自带英文字幕，配合后者使用）
+（1080P，Cornflower Studio资源，自带英文字幕，配合后者使用）
 
 链接：https://pan.baidu.com/s/1QIfAalbi2kTsweSfPCl6Ug 提取码：dlxt 
 
@@ -51,7 +51,7 @@ __OVA中文字幕__
 
 __DVD版__
 
-（画质感人，自带中文字幕）
+（480P，画质感人，自带中文字幕）
 
 链接：https://pan.baidu.com/s/170HdzrfAOxJMfKb2R47EgA 提取码：ili9 
 
@@ -63,7 +63,7 @@ __无名小站资源__
 
 __蓝光版__
 
-（Cornflower Studio资源，无字幕，配合后者使用）
+（1080P，Cornflower Studio资源，无字幕，配合后者使用）
 
 链接：https://pan.baidu.com/s/1mu_7a5YctBCw_xBWj0rTIQ 提取码：a85u 
 
