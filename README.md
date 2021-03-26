@@ -1,5 +1,4 @@
-# 福星小子资源整理
-## 漫画
+# 漫画
 __日文__
 
 扫描者未知
@@ -14,7 +13,7 @@ Join扫描，各漫画网站上多是这个版本
 
 __中文__
 
-我从电子书上提取出来的图片，比前者更清晰一些
+我从电子书中提取出来的图片，比前者更清晰一些
 
 链接：https://pan.baidu.com/s/1j3x-7iTv9rITVpnDbI-hcA 提取码：jovr 
 
@@ -24,7 +23,7 @@ __中文__（电子书）
 
 链接：https://pan.baidu.com/s/1NPEisV6u0Po9IYcY3TNBsA 提取码：eywp 
 
-## TV
+# TV
 
 __DVD__
 
@@ -42,7 +41,7 @@ __蓝光__
 
 链接：https://pan.baidu.com/s/1U1Jw_1Ob-D_l8b_k4UlF1g 提取码：518s 
 
-## OVA
+# OVA
 
 __DVD__
 
@@ -62,7 +61,7 @@ __OVA中文字幕__
 
 链接：https://pan.baidu.com/s/1SNXC3wDYoG8Ywiz1ubTC5Q 提取码：15ze 
 
-## 剧场版
+# 剧场版
 
 __DVD__
 
