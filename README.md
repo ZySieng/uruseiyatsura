@@ -25,11 +25,7 @@ __中文版__
 
 # TV
 
-__蓝光版__
-
-（1080P，Cornflower Studio资源，带中文字幕）
-
-链接：https://pan.baidu.com/s/1P1JhBB_3kikDlRuErGSWRw 提取码：wgt0 
+资源被百度和谐，可在福星小子吧资源贴寻找
 
 # OVA
 
